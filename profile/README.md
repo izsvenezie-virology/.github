@@ -1,0 +1,3 @@
+The Istituto Zooprofilattico Sperimentale delle Venezie (IZSVe) is an Italian public health institute which conducts control and research activities and provides services in the fields of animal health, food safety and zoonoses.
+It was founded on June, 14, 1929 in Padua and today it is part of the Italian National Health Service, together with other nine other similar institutes, each of which covers a specific geographical area of Italy.
+The IZSVe is responsible for the North East of Italy, and its headquarter is located at Legnaro, Padova. It employs about 600 people, including veterinarians, biologists, chemists, technicians and administration staff.
